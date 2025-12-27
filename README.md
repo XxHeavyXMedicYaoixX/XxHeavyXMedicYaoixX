@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=XxHeavyXMedicYaoixX&color=ff0000&style=plastic&label=place+visits)
+![](https://komarev.com/ghpvc/?username=XxHeavyXMedicYaoixX&color=ff0000&style=plastic&label=page+views)
 
 <p align="center">
 You're pouting in your sleep
