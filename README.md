@@ -4,7 +4,7 @@
 <br>  
 
 hellouuu... 👀 <br>
-he/him 🇨🇱 chilean cis guy (does that even matter? im just adding it for extra XD) <br>
+he/him 😄 im an observant little boy i crown everyone !!! <br>
 now read my rentry.co page. <br>
 
 whatever <br>
