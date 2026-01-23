@@ -1,6 +1,11 @@
-whatever
-<p align="left">
-<img src="https://github.com/XxHeavyXMedicYaoixX/XxHeavyXMedicYaoixX/blob/4d91e2b962f0ada9bdb6a87da7c6a2b02b9460c5/Untitled53_20260113124144.png" width="300"> ~my name is daniel... not santelices -_- read my rentry page :3
-</p>
+<img src="https://github.com/XxHeavyXMedicYaoixX/XxHeavyXMedicYaoixX/blob/8178ac3291da581814251c2a0b9f3d53cb3c1f75/Untitled116_20260123122219.png" alt="my pt skin ._." align="right" height="350"></a>
 
-ㅤ ㅤ ㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=XxHeavyXMedicYaoixX&color=ff9900&style=plastic&label=pageviews)
+  
+<br>  
+
+hellouuu... 👀 <br>
+he/him 🇨🇱 chilean cis guy (does that even matter? im just adding it for extra XD) <br>
+now read my rentry.co page. <br>
+
+whatever <br>
+![](https://komarev.com/ghpvc/?username=XxHeavyXMedicYaoixX&color=ff0000&style=plastic&label=pageviews) <br>
