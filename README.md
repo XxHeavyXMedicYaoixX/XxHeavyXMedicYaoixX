@@ -3,9 +3,9 @@
   
 <br>  
 
-hellouuu... 👀 <br>
-i think i will just keep my information private from now on, im a silly dunce :C <br>
-now read my rentry.co page. <br>
+hellouuu... <br>
+i think i will just keep my personal details private from now on, im a silly dunce :C <br>
+read my rentry for other random stuff 👀 <br>
 
 whatever <br>
 ![](https://komarev.com/ghpvc/?username=XxHeavyXMedicYaoixX&color=ff0000&style=plastic&label=pageviews) <br>
